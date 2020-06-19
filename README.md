@@ -4,4 +4,4 @@ Tutorial ada di youtube.
 
 https://www.youtube.com/channel/UCoSKB1q90siWxbEVkMoyeMw
 
-Gunakan Dengan Bijak !!!
+Gunakan Tools Dengan Bijak !!!
